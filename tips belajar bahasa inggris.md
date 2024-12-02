@@ -1,0 +1,1 @@
+buatlah lebih memorable. misalnya kamu menemukan sebuah kosakata baru ketika sedang melakukan hal yang berkesan, maka besar kemungkinan kosakata tersebut akan sulit untuk dilupakan karena ada hal berkesan yang melekat dengannya.
